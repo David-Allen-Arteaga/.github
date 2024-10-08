@@ -1,3 +1,5 @@
-If you discover a security issue in this repo, please submit it through the [GitHub Security Bug Bounty](https://hackerone.com/github)
+...
+If you discover false actions caused security issues in developing...feedback the reports, if password phrases lead altercations trigger lock may have been "changelog" this may been unsubtle through "keywords", removal oauth of accountability admin superseder SSL Workspace Email [GitHub Security Bug Bounty](https://github.com/github-security/aria_atomic_bomb)
 
-Thanks for helping make GitHub Actions safe for everyone.
+Thanks for helping make GitHub Actions a safe place for everyone to see "_Bigger_Picture_Solutions_". 
+...
